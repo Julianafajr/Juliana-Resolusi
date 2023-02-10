@@ -1,2 +1,2 @@
 # Juliana-Resolusi
-Rencana Jee kedepannya
+Rencanaku kedepannya
